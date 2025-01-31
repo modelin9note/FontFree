@@ -6,3 +6,5 @@ https://youtu.be/tznjhufsrOM
 
 
 눈누, 에스코어, 어비 좋네요
+
+https://noonnu.cc/font_page/37
